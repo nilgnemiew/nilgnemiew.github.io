@@ -1,0 +1,1 @@
+Society is shaped by humanity, so you should address all issues pertaining to human nature. Furthermore, it's crucial to be true to yourself, for the world you perceive is shaped by how you see it.
